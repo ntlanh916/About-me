@@ -1,2 +1,2 @@
 # About-me
-Hi, I am student in @BUH, @ntlanh916
+Hi, I am student in @B, @ntlanh916
